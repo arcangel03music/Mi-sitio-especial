@@ -7,7 +7,7 @@ Mi más reciente trabajo discográfico ya está disponible. Una colección de co
 
 ## 🎬 Encuéntrame en:
 - **YouTube**: [Arcangel_03](https://youtube.com/@Arcangel_03)
-- **Instagram**: @arcangel03
+- **Instagram**: @arcangel03_
 
 ## 🎼 Sobre mi música
 Creo música original con influencias variadas, buscando siempre expresar emociones auténticas a través de melodías y letras que conecten con el oyente.
